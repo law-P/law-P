@@ -1,4 +1,4 @@
-# Hi there 👋, Am Lawrence Patrick
+# Hi there 👋, Am Lawrence Orjime
 
 ## Bio
 
