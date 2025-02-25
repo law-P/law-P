@@ -6,8 +6,6 @@
 
 ❤ I'm eager to engage in collaboration 🤼‍♂️, discussing about projects 📒, and connect with fellow learners 🤓. Let's evolve 📈 and expand our knowledge 🙎🏻‍♂️ 
 
-📝 You can find my educational articles on [Speedyminds](https://speedyminds.com/).
-
 💬 Let's talk about: Coding :desktop_computer: and Blogging :writing_hand:
 
 ## 🚀 **Languages and Tools**
